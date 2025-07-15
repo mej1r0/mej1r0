@@ -1,16 +1,21 @@
-## Hi there 👋
+<p align="center"> 
+ <img src="https://github.com/user-attachments/assets/1b5c56d3-155f-4ecf-96d0-7921f38b9e85">
+</p>
 
-<!--
-**mej1r0/mej1r0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  ━──────≪✷≫──────━
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+ ꜰᴀɴᴅᴏᴍs — ᴘᴊsᴇᴋᴀɪ, ᴢᴇɴᴏ ʀᴍᴋ, ɪᴛɪɢᴏᴋᴜʀᴜɪᴢᴀ, sʜᴛᴅɴ, ꜰᴏʀsᴀᴋᴇɴ, ʏᴛᴛᴅ, ᴅᴀɴɢᴀɴʀᴏɴᴘᴀ, sᴀɪʜᴀᴛᴇ sᴛᴀᴛɪᴏɴ, ᴅᴏᴋɪ ᴅᴏᴋɪ ʟɪᴛᴇʀᴀᴛᴜʀᴇ ᴄʟᴜʙ, ʜᴇʟʟᴏ ᴄʜᴀʀʟᴏᴛᴛᴇ, ʜsʀ, ᴇɴᴅ ʀᴏʟʟ, ɢᴜɪʟᴛʏ ᴘᴀʀᴀᴅᴇ, ᴡɪᴛᴄʜ ʜᴇᴀʀᴛ, ᴅᴇᴛʀᴏɪᴛ: ʙᴇᴄᴀᴍᴇ ʜᴜᴍᴀɴ, ɴᴇᴇᴅʏ ɢɪʀʟ ᴏᴠᴇʀᴅᴏsᴇ, ʙᴀɴᴀɴᴀ ꜰɪsʜ, ᴠᴏʟʟᴇʏʙᴀʟʟ, ᴇᴠᴀɴɢᴇʟɪᴏɴ, ʟᴏᴠᴇ ɪs ʜᴀʀᴅ ꜰᴏʀ ᴏᴛᴀᴋᴜ, ʙsᴅ, ɢɪᴠᴇɴ, ᴛʜᴇ sᴛʀᴀɴɢᴇʀ ʙʏ ᴛʜᴇ ʙᴇᴀᴄʜ, ᴀ sɪʟᴇɴᴛ ᴠᴏɪᴄᴇ, sᴋ8, ᴍᴜsɪᴄᴀʟs: ᴘʜᴀɴᴛᴏᴍ ᴏꜰ ᴛʜᴇ ᴏᴘᴇʀᴀ, ɴᴏᴛʀᴇ ᴅᴀᴍᴇ ᴅᴇ ᴘᴀʀɪs, ʀᴏᴍᴇᴏ ᴀɴᴅ ᴊᴜʟɪᴇᴛ, ʙᴇᴇᴛʟᴇᴊᴜɪᴄᴇ
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align="center">
+∴ ════ ∴ ✦ ∴ ════ ∴
+</p>
+
+<p align="center">
+ ᴍᴜsɪᴄ — ᴀʟᴍᴏsᴛ ᴀɴʏ
+ꜰᴀᴠᴏᴜʀɪᴛᴇ ᴍᴜsɪᴄᴀʟ ɢʀᴏᴜᴘs/ᴀʀᴛɪsᴛs— ᴨоᴩноɸиᴧьʍы, ᴘʏʀᴏᴋɪɴᴇsɪs, ᴛᴏᴋɪ sʜᴜɴɪᴄʜɪ, ᴀᴩᴋᴛидᴀ, щᴇнᴋи, ᴍsɪ, ᴋоᴩоᴧь и ɯуᴛ, ᴀᴦᴀᴛᴀ ᴋᴩиᴄᴛи, цой, ᴄᴇᴋᴛоᴩ ᴦᴀзᴀ
+</p>
